@@ -5,4 +5,4 @@
 layout: home
 ---
 
-What up my niggers
+Blessed Be Motherfuckers
